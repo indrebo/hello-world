@@ -6,4 +6,4 @@ Holder på å lære å bruke GitHub
 
 Liten forandring...
 
-28 oktober
+Lørdag 28 oktober
